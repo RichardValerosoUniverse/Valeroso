@@ -3107,6 +3107,7 @@ For Service to Humanity.
 50. Summus Medicus Mentis et Animi 🇵🇭
 51. Inawayan City National High School (INHS) belongs always to The Valeroso City, Valeroso 🇵🇭
 52. Ñemesio Calendar is successfully and effectively installed 11/16/2026 🇵🇭
+53. Gregorian Calendar is Nemesio Calendar; Ñemesio Calendar is the Newest Calendar In Eternity 🇵🇭
     
     
   
